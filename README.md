@@ -1,0 +1,2 @@
+# pavelryzhikov.github.io
+magic
